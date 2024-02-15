@@ -1,6 +1,6 @@
 ### Hi there , my name is LessLethal 👋
 
-WEee
+!00kg lateral raise
 
 <!--
 **LessLethal/LessLethal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
